@@ -7,5 +7,5 @@ I don’t know why, but writing to a family member I haven’t seen in so many y
 
 All in all, I love it:)
 
-! [
+<img width="1290" height="659" alt="image" src="https://github.com/user-attachments/assets/bac28701-0106-4569-a5bf-3c0205767034" />
 
